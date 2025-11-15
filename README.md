@@ -1,2 +1,7 @@
-' ' I should have chased you, I should be who you're engaged to ! ! ' '
-laufey stan
+                                       ' ' ɪ ꜱʜᴏᴜʟᴅ ʜᴀᴠᴇ ᴄʜᴀꜱᴇᴅ ʏᴏᴜ, ɪ ꜱʜᴏᴜʟᴅ ʙᴇ ᴡʜᴏ ʏᴏᴜ'ʀᴇ ᴇɴɢᴀɢᴇᴅ ᴛᴏ. ' ' ♪ 
+ 
+< ʟᴀᴜꜰᴇʏ 3
+
+![](https://i.pinimg.com/736x/67/41/5f/67415f83798ded862a4990b9b042b0b8.jpg)
+
+                                                          odyssey duo <3 (not a ship.)
